@@ -75,12 +75,6 @@ Ideas for taking these further, mostly by getting the skin drier before it cooks
 ### Breading drier wings
 - Super-dry skin gives the flour less to grab onto. After tossing in the breading, let the wings sit ~10 minutes so the coating hydrates before spraying with oil and cooking.
 
-### Future alternative: buttermilk marinade
-- **What:** Instead of the dry brine, marinate the wings in buttermilk with ~1 tsp salt and a good splash of Frank's RedHot.
-- **Time:** 4–12 hours in the fridge, covered.
-- **Why:** The buttermilk tenderises the meat, and its tackiness helps the breading stick. You get a craggier, crunchier crust instead of the papery, dry-brined skin.
-- **How:** Let the excess drip off, dredge straight into the flour mix, rest ~10 min, and spray well with oil on all sides so the breading doesn't come out chalky.
-
 ### Plan for next time
 - **Day before (or two):** Salt (plus baking powder, if using), rack them uncovered in the fridge, fan on if you have one.
 - **Cook day:** Bread, rest 10 min, oil right before cooking, then follow the Steps above.
